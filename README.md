@@ -1,5 +1,5 @@
 ## 猛牛影院 最新地址发布
-## 导 航 永 久 域 名一：HttpS://mengxiuys.com
+## 导 航 永 久 域 名一：HttpS://mengniuys.com
 ## 导 航 永 久 域 名二：HttpS://119369.com
 
 ## ⭐️👇访问地址：
