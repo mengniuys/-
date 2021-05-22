@@ -4,7 +4,7 @@
 
 ## ⭐️👇访问地址：
 ## ⭐️👉HttpS://www.mnys.site
-## ⭐️👉HttpS://www.mnys.xyz
+## ⭐️👉HttpS://www.loufeng.fan
 ## ⭐️👉HttpS://www.mnys.club
 ## ⭐️👉HttpS://www.mengniuys.xyz
 ##
