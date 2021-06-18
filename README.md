@@ -1,12 +1,14 @@
 ## 猛牛影视 最新地址发布
-## 导 航 永 久 域 名一：HttpS://www.mengniuys.com/?github
-## 导 航 永 久 域 名二：HttpS://www.119369.com/?github
 
 ## ⭐️👇访问地址：
-## ⭐️👉HttpS://www.mnys93.space
-## ⭐️👉HttpS://www.mnys92.space
-## ⭐️👉HttpS://www.mnys91.space
-##
+
+
+## 永 久 域 名一⭐️👉：HttpS://www.mengniuys.com/?github
+
+
+## 永 久 域 名二⭐️👉：HttpS://www.119369.com/?github
+
+
 ## 
 ## ‼️‼️直接点击或长按复制到浏览器里面访问以上网址‼️‼️ 
 ##
